@@ -10,4 +10,11 @@ http://darbo.lt/darbas/
     
 https://www.dirbam.lt/darbo-skelbimai/kur:siauliai?categories=6#results
 https://www.cv.lt/nuolatinis-darbas?department=1040&city=1040
-https://www.info.lt/darbo-skelbimai?dk=19&dq=&dm=5&dt=0&dd=&action=ieskoti&page=darbo-skelbimai
+https://www.info.lt/darbo-skelbimai?dk=19&dq=&dm=5&dt=0&dd=&action=ieskoti&page=darbo- 
+
+
+
+Jūsų gyvenimo aprašymas (CV) yra patvirtintas, įtrauktas į Talentų banką ir matomas interneto svetainėje registruotiems darbdaviams, Rekomenduojama: prisistatyme darbdaviui nurodykite kokio darbo ieškote, kokį išsilavinimą, patirties, įgūdžių, asmeninių savybių tam darbui turite.skelbimai
+
+
+
